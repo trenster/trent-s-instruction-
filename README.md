@@ -8,4 +8,4 @@ Hello I'm trent ^3^     ||    he / they  !  prns   .   I mostly sit somewhere ar
 
 * int - I LOVEE interacting with people who have the same interests as me, i am a very social person i do have trouble telling what's a joke or what's not so please try to use tone-tags around me, you don't have to I just struggle with tones and communication sometimes so i apologisee!! 
 
-I LOVE MY TWINS ON HERE !!! mostly people I sit next to: richie (doffy cosplayer), mullet(anya cosplayer), rick(ace cosplayer), OR JUST ANY OF MY FRIENDS I GET TO INTERACT IN THE GAME BUT IM MOSTLY AROUND THESE FELLAS
+I LOVE MY TWINS ON HERE !!! mostly people I sit next to: richie (doffy/law cosplayer), mullet(anya cosplayer), rick(ace cosplayer), OR JUST ANY OF MY FRIENDS I GET TO INTERACT IN THE GAME BUT IM MOSTLY AROUND THESE FELLAS
