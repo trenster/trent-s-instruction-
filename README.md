@@ -10,4 +10,4 @@ Hello I'm trent ^3^     ||    he / they  !  prns   .   I mostly sit somewhere ar
 
 I LOVE MY TWINS ON HERE !!! mostly people I sit next to: richie (doffy/law cosplayer), mullet(anya cosplayer), rick(ace cosplayer), OR JUST ANY OF MY FRIENDS I GET TO INTERACT IN THE GAME BUT IM MOSTLY AROUND THESE FELLAS
 
-https://github.com/trenster/trent-s-instruction-/blob/a310d8e4d8c47e279a35c53bf08ee930032a7142/797d5e8e85fb7f9e3790b83ce4e0295e.jpg
+
