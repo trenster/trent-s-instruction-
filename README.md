@@ -1,5 +1,7 @@
-# trents . introduction & rules
+# `trents` . introduction & rules
+
 read me...
+
 Hello I'm trent ^3^     ||    he / they  !  prns   .   I mostly sit somewhere around spawn or the one piece area, you can find me anywhere !! I mostly cosplay as one piece ponies you might know me from my crocodile, zoro or sanji fits but I'll have {OP} in every one of my cosplays !! Feel free to always interact with me or chat with me !! ships: okay !
 
 * you may freely c+h with me I'm comfortable with that, but please don't make any weird comments or flirt with me unless your my friend but don't make any weird jokes regardless . you may also freely hide me or block me idc, whatever makes you comfortable ! And if you are a weirdo I won't hesitate to hide you or block you.
